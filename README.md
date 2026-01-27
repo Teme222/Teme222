@@ -41,7 +41,7 @@ Turku University of Applied Sciences — *graduated 10/2025*
 ---
 
 ## 🤓 Interests
-Football | Disc Golf | Golf | Video Games
+Football | Disc Golf | Golf | Formula 1 | Video Games
 
 
 ## 👍 Thanks for stopping by!
